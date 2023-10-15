@@ -11,3 +11,9 @@ https://blazeinferno64.github.io/Wa.Dm
 ```
 
 </a>
+
+
+`
+Thanks for reading :)
+Have a niche day ahead!
+`
